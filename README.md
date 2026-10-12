@@ -1,0 +1,2 @@
+# Phasmophobia-Cheats
+🎮 Phasmophobia Cheats
